@@ -1,1 +1,0 @@
-# ar-samplej590hy
